@@ -1,0 +1,2 @@
+# Murat-Baycan-240541022-
+ORYANTASYON DERSİ FİNAL ÖDEVİ
